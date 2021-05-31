@@ -1,0 +1,1 @@
+The ingredients are fresh ripe mangoes,milk,sugar or honey and tang powder. 

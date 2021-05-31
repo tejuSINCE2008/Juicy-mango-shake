@@ -1,0 +1,1 @@
+Take the mangoes and peel their skin and cut them in cube shapes and put them ina mixer and add milk then after mixing well add honey or sugar(your choice) and again mix them.After that pour them in a glass and add tang powder on the top, your milk shake is ready.
